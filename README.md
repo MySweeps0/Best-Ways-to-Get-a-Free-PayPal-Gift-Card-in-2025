@@ -1,6 +1,7 @@
 # Best Ways to Get a Free PayPal Gift Card in 2025
 
 [![Get Free PayPal Gift Cards](https://sweeps.my/assets/offer-imgs/420178570_757117263115318_6375852820886223767_n.webp)](https://win.sweeps.my/free-paypal-gift-cards/)
+
 *Alt text: Free PayPal Gift Cards – How to Get and Redeem Your Code*
 
 > **Try it now**: [Get Free PayPal Gift Cards](https://win.sweeps.my/free-paypal-gift-cards/)
